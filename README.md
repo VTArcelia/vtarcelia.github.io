@@ -1,2 +1,1 @@
-### Discord: VTArcelia
-## https://linktr.ee/vtarcelia
+### Discord: ArceliaVT
